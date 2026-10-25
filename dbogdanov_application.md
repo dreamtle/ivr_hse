@@ -2,7 +2,7 @@
 
 ### Группа: 10 - И - 5
 ### Электронная почта: dabogdanov_4@edu.hse.ru
-### Tg: alekscooper
+### Tg: deniibog
 
 
 **[ НАЗВАНИЕ ПРОЕКТА ]**
